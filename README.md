@@ -1,1 +1,1 @@
-# Vic1
+# Vic1 - this is my obvious coming out, I have always passively liked computing both hardware and software sides. So @50 I am jumping in feet first, thanks and hope to learn and gain more knowledge for this oldie-noob!
